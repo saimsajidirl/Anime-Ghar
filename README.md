@@ -2,7 +2,7 @@
 
 Youtube Link of #AnimeGhar:
 
-![image](https://github.com/user-attachments/assets/c62792a3-b2b1-4a4c-8c59-21d8593517e2)
+[](https://pbs.twimg.com/media/GWJ-ISoW8AADGT8?format=jpg&name=large)
 
 Anime Ghar: Your Gateway to Vibrant Anime for Desi Fans
 
